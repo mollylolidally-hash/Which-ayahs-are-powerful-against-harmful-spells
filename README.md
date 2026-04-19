@@ -1,0 +1,1 @@
+# Which-ayahs-are-powerful-against-harmful-spells
